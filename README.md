@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NinixPR
 - 👀 I’m interested in ... Custom and developer
-- 🌱 I’m currently learning ... customing and developer
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... luz.caztro1991@gmail.com
 
